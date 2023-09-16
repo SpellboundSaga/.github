@@ -1,4 +1,3 @@
 Spellbound Saga 🧙‍♂️
 ====
-
-_In active development_
+_Coming to Steam, and Mobile_
