@@ -1,3 +1,5 @@
-Spellbound Saga 🧙‍♂️
+About 🧙‍♂️
 ====
-_Coming to Steam, and Mobile_
+
+
+Building cool software & records to keep the world rotating.
